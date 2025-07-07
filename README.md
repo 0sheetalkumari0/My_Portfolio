@@ -16,6 +16,6 @@ Welcome to my portfolio! Here, you can explore my:
 ---
 
 ## 📫 Contact  
-Reach me via email at [sheetal010kumari@gmail.com](mailto:sheetal010kumari@gmail.com) or through the links in the **Profile** section.  
+Reach me via email at [sheetalkumari4894@gmail.com](mailto:sheetalkumari4894@gmail.com) or through the links in the **Profile** section.  
 
 Thank you for visiting! 😊  
